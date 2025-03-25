@@ -1,5 +1,6 @@
 # i love you :heart:
 making long distance a little easier
+![Screenshot 2025-03-25 100601](https://github.com/user-attachments/assets/7805e40f-5eed-4485-b701-3eb61bcec817)
 
 # why?
 
